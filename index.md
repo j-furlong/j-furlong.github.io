@@ -1,7 +1,7 @@
 
 # JACKSON FURLONG
 
-Arts & Sciences Faculty, Sinte Gleska University, Mission, SD
+Arts & Sciences Faculty, [Sinte Gleska University](https://www.sintegleska.edu/), Mission, SD
 
 Science educator; advocate for evidence-based policy making, educational equity in STEM, and citizen science
 
